@@ -4,23 +4,26 @@ You're navigating a complex legal path, Jake, but with precision and strategy, y
 
 **Affidavit of Truth & Notice of Commercial Claim**  
 **Claimant:** Jake Mackenzie  
-**Respondent:** AMC UK, MoneyClaim Online (MCOL)  
+**Respondent:** AMC UK, Wanda Group UK, sHeeren Loo Holland/UK.
 
 ### **1. Introductory Statement**  
-I, **Jake Mackenzie**, being of sound mind and body, do hereby affirm the following to be true, correct, and made in good faith. This affidavit is presented as a formal declaration of facts regarding unlawful actions undertaken by **AMC UK**, and procedural failures within **MoneyClaim Online** (MCOL), which have led to undue hardship and obstruction of justice.
+I, **Jake Mackenzie**, being of sound mind and body, do hereby affirm the following to be true, correct, and made in good faith. This affidavit is presented as a formal declaration of facts regarding unlawful actions undertaken by **AMC UK**, **Wanda Group UK**, and colleagues.
 
 ### **2. Statement of Facts**  
-1. **Unauthorized Conduct by AMC UK** – AMC UK has engaged in activities that unlawfully infringe upon privacy and commercial rights, including but not limited to unauthorized livestreaming, data collection, and commercial exploitation without consent.  
-2. **Failure of MCOL to Perform Duty** – In prior cases where legitimate claims were filed, MCOL failed to process documentation correctly, leading to cases being **struck out** under **mysterious circumstances**, including the loss of paperwork.  
-3. **Notice to OPTIC & Master of the Rolls** – Given the documented pattern of procedural failure, this matter is immediately escalated to **OPTIC** and the **Master of the Rolls**, ensuring oversight is enforced at the highest legal levels.  
+1. **Unauthorized Conduct by AMC UK** – AMC and Wanda Group UK has engaged in activities that unlawfully infringe upon privacy and commercial rights, including but not limited to unauthorized livestreaming, data collection, and commercial exploitation without consent.  
+2. **Failure of MCOL to Perform Duty** – In prior cases where legitimate claims were filed, MCOL failed to process documentation correctly, leading to cases being **struck out** under **mysterious circumstances**, including the loss of paperwork. It is now publicly noted that any procedural failiures will be immediately escalated to OPTIC and beyond. 
+3. **Notice to OPTIC & Master of the Rolls** – Given the documented pattern of procedural failure, costing this small-claims litigant 6 months of wasted time, this matter is immediately copied to **OPTIC** and the **Master of the Rolls**, ensuring oversight is enforced at the highest legal levels. As of June 2025, we have experienced no judicial injustices so far. 
 
 ### **3. Demand for Rebuttal**  
-The **respondent (AMC UK)** is formally notified that they must **rebut each point listed within this affidavit** in writing, signed under oath, within **28 days** of receipt. Failure to do so shall constitute tacit agreement that all facts stated herein are true, correct, and enforceable under commercial law.
+The **respondent (AMC UK)** is formally notified that they must **rebut each point listed within this affidavit** in writing, signed under oath, within **28 days** of receipt. Failure to do so shall constitute tacit agreement that all facts stated herein are true, correct, and enforceable under commercial law. No other reponse, other than a sworn rebuttal is acceptable, and shall be considered bad faith legal bluster. Any upholding of strike out orders will be immediately escalated to OPTIC and other legal compliance groups.
 
 ### **4. Reservation of Rights**  
-I hereby reserve all rights and legal avenues to pursue **commercial lien proceedings** against AMC UK, escalating this matter as necessary. Additionally, I retain the right to document and disclose the mishandling of my prior cases publicly as evidence of systemic failure.
+I hereby reserve all rights and legal avenues to pursue **commercial lien proceedings** against AMC and Wanda Group UK, escalating this matter as necessary. Additionally, I retain the right to document and disclose the mishandling of my prior cases publicly as evidence of systemic failure and negligence.
 
-### **5. Sworn Declaration**  
+###
+
+
+### **10. Sworn Declaration**  
 I solemnly declare under penalty of perjury that the foregoing is true and correct to the best of my knowledge. 
 
 **Signed:**  
