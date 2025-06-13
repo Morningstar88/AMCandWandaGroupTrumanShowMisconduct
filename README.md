@@ -20,10 +20,18 @@ The **respondent (AMC UK)** is formally notified that they must **rebut each poi
 ### **4. Reservation of Rights**  
 I hereby reserve all rights and legal avenues to pursue **commercial lien proceedings** against AMC and Wanda Group UK, escalating this matter as necessary. Additionally, I retain the right to document and disclose the mishandling of my prior cases publicly as evidence of systemic failure and negligence.
 
-###
+### **5. Digital Written Process**
+I am currently away from a good telephone or internet connection. Because of this, I am requesting MCOL to enforce a quick, honest **written correspondence, mediation and payout, with no online hearings or mediation, if possible.** I do this in the name of speed and justice. Should this request again be disregarded, I will escalate immediately to OPTIC and relevant oversight bodies.
 
+CLAIM AGAINST AMC and Wanda Group
 
-### **10. Sworn Declaration**  
+### **6. lLivestreamed Abuse** AMC and Wanda Group have livestreamed my life without addmission, payment, profit-sharing or apology. This is a deep, deliberate, methodical abuse of a human soul, and it must be righted immediately with an apology, and several cash payments, the first of which shall be paid through MCOL.  
+
+### **7. I have no proof of this livestreaming, but under the auspices of commercial law, if Wanda Group and AMC do not contest these claims under penalty of perjury, they stand as truth in law. 
+
+### **8. An individual called Stephen Goedhart told me "It's a movie, and you're the star of the show." The name AMC is recognized by many, likewise, Stephen's name is known to almost everyone I talk to, but protected by a powerful and illegal NDA. Wanda Group and AMC therrefor agree to pay 300 pounds via MCOL, and arrange further payments via mediation.
+
+### **9. Sworn Declaration**  
 I solemnly declare under penalty of perjury that the foregoing is true and correct to the best of my knowledge. 
 
 **Signed:**  
