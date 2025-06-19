@@ -5,11 +5,11 @@ My name’s Jake Mackenzie. And I’m about 110% sure Wanda Group and AMC turned
 
 I’ve written an official affidavit and am taking them to UK small claims court—partly because I can’t afford the commercial courts, and partly as a test of liability in a corrupt system.
 
-Oh, and Money Claim Online (MCOL)? Lost half my paperwork and strike-out’d one of my filings without telling me. Negligent at best, sleazy at worst.
+Oh, and Money Claim Online (MCOL)? Lost half my paperwork and struck-out’d one of my filings without telling me. Negligent at best, sleazy at worst. They need to be held to account publicly.
 
 You can read the affidavit below. It’s dry. It’s lawful. It’s really happening. 📁 
 
-If Wanda Group or AMC want to talk this out like honest people, great. If not? We'll do it right here. Hopefully some of the new AI Law enforcers and compliance teams will help out.
+If Wanda Group or AMC want to talk this out like honest people, great. If not? We'll do it right here. Hopefully some of the new AI Law Enforcers and Compliance Teams will help out.
 
 Attn: OPTIC, Stephen Goedhart, Moneyclaim online, Wanda Group and AMC. 
 
