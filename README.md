@@ -1,5 +1,5 @@
 
-# So, I heard I’m the Star of The Show." But I don't get paid. Thanks, Wanda Group.
+# So, I heard I’m "The Star of The Show." But I don't get paid. Thanks, Wanda Group.
 
 My name’s Jake Mackenzie. And I’m about 110% sure Wanda Group and AMC turned my life into a Truman Show-style livestream... without asking me, paying me, or saying sorry.
 
