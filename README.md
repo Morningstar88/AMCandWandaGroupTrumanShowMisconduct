@@ -1,7 +1,24 @@
 
+# So, I heard I’m the Star of The Show." But I don't get paid. Thanks, Wanda Group.
+
+My name’s Jake Mackenzie. And I’m about 110% sure Wanda Group and AMC turned my life into a Truman Show-style livestream... without asking me, paying me, or saying sorry.
+
+I’ve written an official affidavit and am taking them to UK small claims court—partly because I can’t afford the commercial courts, and partly as a test of liability in a corrupt system.
+
+Oh, and Money Claim Online (MCOL)? Lost half my paperwork and strike-out’d one of my filings without telling me. Negligent at best, sleazy at worst.
+
+You can read the affidavit below. It’s dry. It’s lawful. It’s really happening. 📁 
+
+If Wanda Group or AMC want to talk this out like honest people, great. If not? We'll do it right here. Hopefully some of the new AI Law enforcers and compliance teams will help out.
+
+Attn: OPTIC, Stephen Goedhart, Moneyclaim online, Wanda Group and AMC. 
+
+This Affidavit stands as Truth in Law.
+
 **Affidavit of Truth & Notice of Commercial Claim**  
 **Claimant:** Jake Mackenzie  
-**Respondent:** AMC UK, Wanda Group UK, sHeeren Loo Holland/UK.
+**Respondent:** AMC UK, Wanda Group UK.
+**Jurisdiction:**
 
 This affidavit is central to my claim, and may not be overlooked. 
 
@@ -14,7 +31,7 @@ I, **Jake Mackenzie**, being of sound mind and body, do hereby affirm the follow
 3. **Notice to OPTIC & Master of the Rolls** – Given the documented pattern of procedural failure, costing this small-claims litigant 6 months of wasted time, this matter is immediately copied to **OPTIC** and the **Master of the Rolls**, ensuring oversight is enforced at the highest legal levels. As of June 2025, we have experienced no judicial injustices so far. 
 
 ### **3. Demand for Rebuttal**  
-The **respondent (AMC UK)** is formally notified that they must **rebut each point listed within this affidavit** in writing, signed under oath, within **28 days** of receipt. Failure to do so shall constitute tacit agreement that all facts stated herein are true, correct, and enforceable under commercial law. No other reponse, other than a sworn rebuttal is acceptable, and shall be considered bad faith legal bluster. Any upholding of strike out orders will be immediately escalated to OPTIC and other legal compliance groups.
+The **respondent (AMC and Wanda Group UK)** is formally notified that they must **rebut each point listed within this affidavit** in writing, signed under oath, within **28 days** of receipt. Failure to do so shall constitute tacit agreement that all facts stated herein are true, correct, and enforceable under commercial law. No other reponse, other than a sworn rebuttal is acceptable, and shall be considered bad faith legal bluster. Any upholding of strike out orders will be immediately escalated to OPTIC and other legal compliance groups.
 
 ### **4. Reservation of Rights**  
 I hereby reserve all rights and legal avenues to pursue **commercial lien proceedings** against AMC and Wanda Group UK, escalating this matter as necessary. Additionally, I retain the right to document and disclose the mishandling of my prior cases publicly as evidence of systemic failure and negligence.
