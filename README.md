@@ -24,7 +24,9 @@ I am currently away from a good telephone or internet connection. Because of thi
 
 Claim Against AMC and Wanda Group
 
-### **6. lLivestreamed Abuse** AMC and Wanda Group have livestreamed my life without addmission, payment, profit-sharing or apology. This is a deep, deliberate, methodical abuse of a human soul, and it must be righted immediately with an apology, FOIA disclosure and several cash payments, the first of which shall be paid through MCOL. I do not have the funds to go to the commercial courts, thus I begin my claim in His Majesty's small claims court. 
+### **6. 
+
+Livestreamed Abuse** AMC and Wanda Group have livestreamed my life without addmission, payment, profit-sharing or apology. This is a deep, deliberate, methodical abuse of a human soul, and it must be righted immediately with an apology, FOIA disclosure and several cash payments, the first of which shall be paid through MCOL. I do not have the funds to go to the commercial courts, thus I begin my claim in His Majesty's small claims court. 
 
 ### **7. I have no proof of this livestreaming, but under the auspices of commercial law, if Wanda Group and AMC do not contest these claims under penalty of perjury, they stand as truth in law. 
 
