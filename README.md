@@ -24,40 +24,40 @@ I am currently away from a good telephone or internet connection. Because of thi
 
 Claim Against AMC and Wanda Group
 
-6. Livestreamed Abuse
+### **6. Livestreamed Abuse**
 AMC and Wanda Group have livestreamed my life without admission, compensation, profit-sharing, or apology. This constitutes a deep, deliberate, and methodical abuse of a human soul. It must be remedied immediately through (1) a formal apology, (2) full disclosure under applicable transparency law, and (3) several compensatory payments—the first of which shall be claimed via Money Claim Online (MCOL). As I do not possess the resources to file in the commercial courts, I hereby initiate my claim in His Majesty’s Small Claims Court.
 
 I also submit this specific filing as a test of liability and an exercise of judicial good faith, in line with my right to seek redress proportionate to my means. Previous claims have been mishandled by the MCOL system, including the misplacement of submitted documentation and a strike-out that occurred without notice or acknowledgment—issues which undermined due process and eroded procedural trust.
 
-7. Legal Standing
+### **7. Legal Standing**
 I acknowledge that I currently lack direct proof of this livestreaming. However, under the principles of commercial law, and in accordance with affidavit jurisprudence, if Wanda Group and AMC choose not to rebut these sworn claims under penalty of perjury, they may stand as truth in law.
 
-8. The Goedhart Statement
+### **8. The Goedhart Statement**
 An individual named Stephen Goedhart once told me: “It’s a movie, and you’re the star of the show.” The name AMC is widely recognized in this context. Stephen’s name, too, is known to nearly every person I raise this with—yet appears to be protected by a powerful and likely unlawful non-disclosure agreement. Therefore, Wanda Group and AMC agree to pay £300 via MCOL as an initial profit-share, with further payments to be arranged via mediation.
 
-9. Additional Evidence Withheld for Brevity
+### **9. Additional Evidence Withheld for Brevity**
 I possess numerous other sworn statements supporting my claim but withhold them here in the interest of brevity. I must also state that I have less than full confidence in the MCOL system, given past issues involving lost paperwork and an unnotified strike-out.
 
-10. Process Warnings (OPTIC Protocol)
+### **10. Process Warnings (OPTIC Protocol)**
 Let it be respectfully known:
 
-Failure to acknowledge my request for an expedited, digital-only process will be escalated to OPTIC.
+- Failure to acknowledge my request for an expedited, digital-only process will be escalated to OPTIC.
 
-Failure to appoint a mediator will be escalated to OPTIC.
+- Failure to appoint a mediator will be escalated to OPTIC.
 
-Failure to acknowledge this sworn affidavit will be escalated to OPTIC.
+- Failure to acknowledge this sworn affidavit will be escalated to OPTIC.
 
-Loss of paperwork will be escalated to OPTIC.
+- Loss of paperwork will be escalated to OPTIC.
 
-Missed deadlines will be escalated to OPTIC.
+- Missed deadlines will be escalated to OPTIC.
 
-Failure to rebut this affidavit will be escalated to OPTIC.
+- Failure to rebut this affidavit will be escalated to OPTIC.
 
-Legal posturing and arbitrary strike-out orders will be escalated to OPTIC.
+- Legal posturing and arbitrary strike-out orders will be escalated to OPTIC.
 
 I am not inclined to expend another six months on a bad-faith process. The timeline for this matter has already exceeded 3.5 years.
 
-11. Sworn Declaration
+###  **11. Sworn Declaration**
 I solemnly declare under penalty of perjury that the foregoing is true and correct to the best of my knowledge.
 
 Sworn under penalty of perjury, before the Once and Future King of England and Scotland,
